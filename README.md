@@ -1,2 +1,2 @@
-# JiweiCN.github.io
+# Jiwei
 君子性非异也 善假于物也
